@@ -2,7 +2,11 @@
 
 ## Episódio 01: A Ameaça Fantasma
 
+É onde conhecemos o personagem principal, Anakin.
+
 ## Epísódio 02: O Ataque dos Clones
+
+Agora, Anakin é um aprendiz de jedi.
 
 ## Epísódio 03: A Revolta dos Sith
 
