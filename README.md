@@ -16,4 +16,6 @@ Sem spoilers!!!
 
 ## Episódio 05: O Império Contra-Ataca
 
+Luke começa a treinar.
+
 ## Episódio 06: O Retorno de Jedi
