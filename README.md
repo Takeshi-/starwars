@@ -21,3 +21,5 @@ Outro presonagem aparece.
 Luke começa a treinar.
 
 ## Episódio 06: O Retorno de Jedi
+
+SEM SPOILERS!!!
