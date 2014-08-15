@@ -14,6 +14,8 @@ Sem spoilers!!!
 
 ## Episódio 04: Uma Nova Esperança
 
+Outro presonagem aparece.
+
 ## Episódio 05: O Império Contra-Ataca
 
 ## Episódio 06: O Retorno de Jedi
